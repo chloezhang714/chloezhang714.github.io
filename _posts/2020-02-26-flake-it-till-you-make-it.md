@@ -1,17 +1,56 @@
 ---
 layout: post
-title: Flake it till you make it
-subtitle: Excerpt from Soulshaping by Jeff Brown
+title: Best Pecan Pie
+subtitle: perfect for holidays
 cover-img: /assets/img/path.jpg
 thumbnail-img: /assets/img/thumb.png
 share-img: /assets/img/path.jpg
-tags: [books, test]
+tags: [receipe, holidays]
 ---
 
-Under what circumstances should we step off a path? When is it essential that we finish what we start? If I bought a bag of peanuts and had an allergic reaction, no one would fault me if I threw it out. If I ended a relationship with a woman who hit me, no one would say that I had a commitment problem. But if I walk away from a seemingly secure route because my soul has other ideas, I am a flake?
+Pecan Pie Ingredients
+If you have pecans and a few kitchen staples, you likely have everything you need to make this pecan pie. Here's what you'll need:
 
-The truth is that no one else can definitively know the path we are here to walk. It’s tempting to listen—many of us long for the omnipotent other—but unless they are genuine psychic intuitives, they can’t know. All others can know is their own truth, and if they’ve actually done the work to excavate it, they will have the good sense to know that they cannot genuinely know anyone else’s. Only soul knows the path it is here to walk. Since you are the only one living in your temple, only you can know its scriptures and interpretive structure.
+Sugar
+This recipe calls for nearly two cups of granulated sugar. Some reviewers say they like to use a mixture of white and brown sugars.
 
-At the heart of the struggle are two very different ideas of success—survival-driven and soul-driven. For survivalists, success is security, pragmatism, power over others. Success is the absence of material suffering, the nourishing of the soul be damned. It is an odd and ironic thing that most of the material power in our world often resides in the hands of younger souls. Still working in the egoic and material realms, they love the sensations of power and focus most of their energy on accumulation. Older souls tend not to be as materially driven. They have already played the worldly game in previous lives and they search for more subtle shades of meaning in this one—authentication rather than accumulation. They are often ignored by the culture at large, although they really are the truest warriors.
+Corn Syrup
+Dark corn syrup adds texture, volume, and deep flavor. For a lighter flavor, use light corn syrup.
 
-A soulful notion of success rests on the actualization of our innate image. Success is simply the completion of a soul step, however unsightly it may be. We have finished what we started when the lesson is learned. What a fear-based culture calls a wonderful opportunity may be fruitless and misguided for the soul. Staying in a passionless relationship may satisfy our need for comfort, but it may stifle the soul. Becoming a famous lawyer is only worthwhile if the soul demands it. It is an essential failure if you are called to be a monastic this time around. If you need to explore and abandon ten careers in order to stretch your soul toward its innate image, then so be it. Flake it till you make it.
+Butter
+Butter gives this pie richness and a delicious depth of flavor.
+
+Cornstarch and Water
+Two teaspoons of cornstarch and a tablespoon of cold water work together to help thicken the filling.
+
+Eggs
+Whole eggs help bind the filling together and add welcome moisture.
+
+Salt
+A pinch of salt goes a long way to enhance the other flavors in the filling.
+
+Vanilla
+Vanilla extract amps up the flavor in a sweet, crowd-pleasing way. You definitely don't want to skip this ingredient.
+
+Pecans
+What would pecan pie be without pecans? Halved or chopped pecans will work well for this recipe.
+
+Pie Shell
+Use our top-rated Butter Flaky Pie Crust for guaranteed delicious results. Of course, a frozen or refrigerated crust will work in a pinch.
+
+How to Crack and Clean Pecans For Baking
+How to Make Pecan Pie
+It couldn't be easier to make this homemade pecan pie. You'll find the full recipe below, but here's a quick preview: Boil sugar, corn syrup, butter, cornstarch, and water in a small saucepan. In a separate bowl, mix beaten eggs with salt and vanilla. Stir in the pecans. Add the cooked sugar mixture to the pecan mixture, then stir to combine. Pour the filling into the pie shell and bake.
+
+How to Tell When Pecan Pie Is Done
+This pecan pie should be fully baked after 45 to 50 minutes in an oven preheated to 350 degrees F. If you're not sure if the filling is set, stick a knife or toothpick into the center — if it comes out clean, the pie is done.
+
+Do Pecan Pies Need to Be Refrigerated?
+Yes. Since this pecan pie filling calls for three eggs, you'll need to refrigerate it within two hours of baking.
+
+How Long Does Pecan Pie Last?
+Stored properly (loosely wrapped in the fridge), pecan pie will last about five days.
+
+How to Store Pecan Pie
+Can You Freeze Pecan Pie?
+Yes! You can absolutely freeze pecan pie. Just wrap the cooled pie tightly in plastic or aluminum foil (use both for added protection) and store it in the freezer for up to three months. Thaw it in the fridge overnight.
